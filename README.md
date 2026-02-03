@@ -1,0 +1,1 @@
+# yerzatulymansur.github.io
